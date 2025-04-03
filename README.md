@@ -1,0 +1,1 @@
+# Uso-Hist-rico-da-Criptografia-e-Algoritmos-AtuaisUso-Historico-da-Criptografia-e-Algoritmos-Atuais-
